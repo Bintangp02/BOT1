@@ -1,6 +1,5 @@
 /*Makasih Kepada 
 Diri gw sendiri (bintang)
-riu (mel cantik:v)
 subscriber semuanya!
 pengguna bot!!
 */
